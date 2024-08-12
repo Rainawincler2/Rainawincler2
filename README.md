@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil🖤
+### Boas vindas ao meu perfil 💗
 
 Meu nome é Raina Wincler
 
@@ -11,4 +11,5 @@ Meu nome é Raina Wincler
 00001110805913sp@al.educacao.sp.gov.br
 
 @_wincler.xz
--->
+--
+![](https://media1.tenor.com/m/yeyq0QBIAvgAAAAC/dancing-mouse.gif)
